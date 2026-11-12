@@ -5,4 +5,11 @@ Este proyecto lo realizara un equipo de dos personas  que están cursando actual
  - Javier Escobar 
  - Miguel Bedmar
 
+# ➡️ Introduccion
+
+
+
  # 📋 Descripción.
+ 
+
+# 🇩   🇦   🇫   🇴  
